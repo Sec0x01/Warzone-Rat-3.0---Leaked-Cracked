@@ -1,1 +1,1 @@
-# Warzone-Rat-3.0---Leaked-Cracked
+# Warzone-Rat-3.0
